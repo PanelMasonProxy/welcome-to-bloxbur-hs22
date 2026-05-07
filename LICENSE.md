@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://PanelMasonProxy.github.io/welcome-to-bloxbur-hs22/) |
  |---------------------|----------------------:|
 
 
